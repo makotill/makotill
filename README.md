@@ -1,7 +1,7 @@
 ## hmmmmm                                                                                  
-![divider](https://github.com/user-attachments/assets/94fdddbb-0387-4792-8873-81e24ff5b38d)![divider](https://github.com/user-attachments/assets/94fdddbb-0387-4792-8873-81e24ff5b38d)![divider](https://github.com/user-attachments/assets/94fdddbb-0387-4792-8873-81e24ff5b38d)![divider](https://github.com/user-attachments/assets/94fdddbb-0387-4792-8873-81e24ff5b38d)
+![divider-aesthetic](https://github.com/user-attachments/assets/bf416781-0348-4a81-857d-974ac9e0527e)![divider-aesthetic](https://github.com/user-attachments/assets/bf416781-0348-4a81-857d-974ac9e0527e)![divider-aesthetic](https://github.com/user-attachments/assets/bf416781-0348-4a81-857d-974ac9e0527e)![divider-aesthetic](https://github.com/user-attachments/assets/bf416781-0348-4a81-857d-974ac9e0527e)
 
 
-<img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" />![england-hetalia-england-aph](https://github.com/user-attachments/assets/fcfc6a19-edd7-4214-bf4d-babc39859649)
+<img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" />![hypmic-hypnosis-mic (1)](https://github.com/user-attachments/assets/0d9dc1b4-a530-4aa3-aa9b-390542487a60)
 
-![divider](https://github.com/user-attachments/assets/94fdddbb-0387-4792-8873-81e24ff5b38d)![divider](https://github.com/user-attachments/assets/94fdddbb-0387-4792-8873-81e24ff5b38d)![divider](https://github.com/user-attachments/assets/94fdddbb-0387-4792-8873-81e24ff5b38d)![divider](https://github.com/user-attachments/assets/94fdddbb-0387-4792-8873-81e24ff5b38d)
+![divider-aesthetic](https://github.com/user-attachments/assets/bf416781-0348-4a81-857d-974ac9e0527e)![divider-aesthetic](https://github.com/user-attachments/assets/bf416781-0348-4a81-857d-974ac9e0527e)![divider-aesthetic](https://github.com/user-attachments/assets/bf416781-0348-4a81-857d-974ac9e0527e)![divider-aesthetic](https://github.com/user-attachments/assets/bf416781-0348-4a81-857d-974ac9e0527e)
